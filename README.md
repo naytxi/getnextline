@@ -2,7 +2,9 @@
 ![gif](https://i.pinimg.com/564x/d1/93/60/d19360467328a097a7d276646b67676d.jpg)
 
 🖐️ Hi! 
+
 I'm Nay 
+
 I'm currently learning to code.
 
 <h2>🚀ABOUT</h2>
